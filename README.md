@@ -10,5 +10,5 @@ stick it to the man!
 </p>
  
 <p align="center">
-ships iwc  ﹏ c+h freely
+ships iwc  ﹏ c+h ok
 </p>
