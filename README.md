@@ -6,7 +6,7 @@ stick it to the man!
 </p>
 
 <p align="center">
-<a href="https://mafioso.atabook.org/">ata</a>  <a href="https://rentry.co/finalshot">rentry</a>  <a href="https://colormytree.me/2025/01JE64K2961HVQ8J8DERVKDHHR">tree</a>
+<a href="https://mafioso.atabook.org/">ata</a>  <a href="https://rentry.co/finalshot">rentry</a>  <a href="https://stickit2theman.straw.page/">straw</a>
 </p>
  
 <p align="center">
