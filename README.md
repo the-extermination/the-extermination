@@ -1,5 +1,5 @@
 <p align="center">
-you're malignant, like a tumor.
+you admired me in a way that i never had.
 </p>
 <p align="center">
   <img src="https://meawsource.carrd.co/assets/images/image02.png?v=e63f03fa" width="500"/>
